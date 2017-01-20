@@ -4,7 +4,7 @@
 
 Freshman year I was assigned to Perkins, a dorm notoriously far from campus and the other freshman residences. By chance, the closet friends I made lived in Andrews – a 15 minute walk away – which felt unbearably long as an 18-year-old.
 
-To solve this dilemma, my two closest friends – who roomed together – raised up one of their bed frames, I acquired an unused school mattress, and we bought a drape. Thus was born the Zave: the "Zach cave."
+To solve this dilemma, my two closest friends – who roomed together – raised up one of their bed frames; I acquired an unused school mattress; and we bought a drape. Thus was born the Zave: the "Zach cave."
 
 # The Virtual Zave
 
